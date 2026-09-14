@@ -17,3 +17,7 @@
 ## 마즈 응원방
 
 우리 마즈 우주뿌셔ㅠㅠ
+
+<img width="374" height="234" alt="image" src="https://github.com/user-attachments/assets/ef5a52ff-429c-4a8b-b206-742a40557339" />
+
+나 벌꿀오소리인데 참전해도 되냐?
