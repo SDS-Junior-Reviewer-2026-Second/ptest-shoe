@@ -23,3 +23,8 @@
 <img width="374" height="234" alt="image" src="https://github.com/user-attachments/assets/ef5a52ff-429c-4a8b-b206-742a40557339" />
 
 나 벌꿀오소리인데 참전해도 되냐?
+
+마즈 화이팅!!!
+
+
+지리산 반달곰도 참전해도 되냐?
