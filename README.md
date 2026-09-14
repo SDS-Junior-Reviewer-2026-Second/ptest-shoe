@@ -9,3 +9,7 @@
 내가 무조건 이김ㅇㅇ
 
 <img width="600" height="800" alt="Image" src="https://github.com/user-attachments/assets/988762e8-15a4-4047-ab16-c5d7837f1505" />
+
+## 박시우 응원방
+
+시우형 난 응원해 형이 충분히 이길듯 - 강현
